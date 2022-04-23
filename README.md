@@ -12,7 +12,7 @@
 
 - 📫 Pengen kenalan? klik aja link di bio, nanti kita kenalan hehe 
 
-# Segitu aja, makasii🤙🏻
+# Segitu aja, makasii yaaa🤙🏻
 
 <!---
 muhammdsatritama/muhammdsatritama is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
